@@ -1,0 +1,2 @@
+# FantasyGo
+Four foolers' imagnation
